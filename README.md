@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hola 👋
 
 
 Mi nombre es Estela Geovanna Chipantasi Ibañez, tengo 20 años. 
